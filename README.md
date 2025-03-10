@@ -1,4 +1,4 @@
-👋 Hi, I’m @SravaniNaidu-Hub
+👋 Hi, I’m Sravani Majji 
 I’m passionate about data analytics and eager to use my skills to solve real-world problems.
 
 👀 I’m interested in:
